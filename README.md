@@ -380,9 +380,9 @@ Minggu 3 – Adaptasi Finansial & Relasi
 
 ✅ Evaluasi pengeluaran 2 minggu → revisi budget (misal: lebih banyak masak, beli bento diskon di malam hari).
 
-✅ Cari peluang side income legal (freelance IT, tutoring bahasa Inggris/Indonesia, atau project remote).
+✅ Cari peluang side income legal (freelance, tutoring bahasa Jepang/Indonesia, atau affiliate).
 
-✅ Bangun hubungan baik dengan senpai atau atasan, jangan isolasi diri.
+✅ Bangun hubungan baik dengan senpai atau atasan, jangan isolasi diri. (tapi tetep hati hati)
 
 ✅ Mulai buat dokumentasi hidup → diary/Notion “Japan Journey” (berguna untuk refleksi & konten nanti).
 
@@ -394,11 +394,11 @@ Minggu 4 – Fondasi Jangka Panjang
 
 ✅ Simpan minimal 20–30% gaji pertama (langsung ke tabungan).
 
-✅ Buat emergency plan: siapa kontak jika ada masalah (teman lokal, KBRI, komunitas).
+✅ Buat emergency plan: simpen kontak penting jika ada masalah (teman lokal, KBRI, komunitas).
 
-✅ Mulai eksplor: coba ikut event/meetup tech kecil di kota (kalau ada), networking ringan.
+✅ Mulai eksplor: coba ikut event/meetup kecil di kota (kalau ada), networking ringan.
 
-✅ Rencanakan target bulan 2–3: misal side project, freelance kecil, atau upgrade skill.
+✅ Rencanakan target bulan 2–3: misal side project/product, freelance kecil, atau upgrade skill.
 
 
 
@@ -418,6 +418,6 @@ Minggu 4 – Fondasi Jangka Panjang
 4. Punya minimal 2–3 temen baru (rekan kerja, teman komunitas, diaspora).
 
 
-5. Mulai menanam “akar” untuk growth (bahasa, side income, network). (buat kebaikan kamu, mulai lah mandiri dan ga usah ngarepin cowo)
+5. Mulai menanam “akar” untuk bisa tumbuh lagi (bahasa, side income, network). (buat kebaikan kamu, mulai lah mandiri dan ga usah ngarepin cowo)
 
 
