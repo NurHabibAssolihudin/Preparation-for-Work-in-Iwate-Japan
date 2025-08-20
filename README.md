@@ -139,9 +139,10 @@ Kasus lama: di komunitas pekerja Indonesia di Jepang, banyak yang terjerat “pi
 
 Cari komunitas Indonesia di Iwate.
 Ada asosiasi/perkumpulan kecil TKI/TGW di Morioka & Oshu (Iwate). Mereka bisa jadi tempat curhat & backup. Tapi hati-hati, jangan langsung percaya semua orang Indonesia di sana → ada juga yang justru jadi calo/penjerat utang.
+(hati hati juga meskipun sama cewe. banyak kasus pemerkosaan sampai pembunuhan dan temen cewe jadi perantara buat narik korban)
 
 Jangan anti-sosial dengan pekerja asing lain (Vietnam, Filipina).
-Pabrik makanan banyak isi mix pekerja asing. Kalau bisa berteman → bisa tukar info kerja sampingan (arubaito) atau sekadar survival tips. (Tapi hati hati meskipun sama cewe. banyak kasus pemerkosaan sampai pembunuhan dan temen cewe jadi perantara buat narik korban)
+Pabrik makanan banyak isi mix pekerja asing. Kalau bisa berteman → bisa tukar info kerja sampingan (arubaito) atau sekadar survival tips.
 
 Belajar bahasa Jepang sederhana sehari-hari.
 Banyak cerita pekerja jatuh mental karena nggak bisa komunikasi. Minimal kuasai pola dasar: salam, laporan, minta tolong, izin sakit.
